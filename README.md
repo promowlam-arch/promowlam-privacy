@@ -22,7 +22,7 @@ Você pode solicitar acesso, correção ou exclusão de seus dados entrando em c
 
 ## 6. Contato
 Se tiver dúvidas sobre esta Política de Privacidade, entre em contato:
-- Email: leticia93willian79@gmail.com
+- Email: contato@wlamapps.com.br
 - Site: [https://promowlam.com.br](https://promowlam.com.br)
 
 ---
